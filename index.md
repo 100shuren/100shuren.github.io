@@ -9,4 +9,4 @@ How to write a personal statement for university application? Nowadays, you can 
 
 So it is important to accumulate the experience before your university application. That's why we say "how to prepare a personal statement" instead. It would have been too late to learn how to write a personal statement just before the application deadline. You have to make preparation for years before you can apply for a top university. Recently, a Japanese movie shows that a special training can prepare students well for Tokyo University. Actually, many students of Tokyo University started their [preparations before 10 year old](<https://www.aboluowang.com/2020/0915/1501258.html>). There is no secret that only those well prepared applicants got into top universities.
 
-Contact us if you have the aspiration to let your child to go to a top UK university.
+[Contact us](<mailto:chuansen.ren@gmail.com>) if you have the aspiration to let your child to go to a top UK university.
